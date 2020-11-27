@@ -1,4 +1,4 @@
-# Ever tried a **Quiz on Spirituality**?!
+# Ever tried a **Quiz on Spirituality**?
 
 Hey Guys! If you think you have even some minor degree of Existential Crisis, and so are started to having a spiritual inclination, then this app is for you.
 I would love to know how much you know about Spirituality.
